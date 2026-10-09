@@ -1,1 +1,1 @@
-Physical Computing Project 2026 - IT KMITL
+Physical Computing Project 2026 - IT KMIT
